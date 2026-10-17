@@ -10,3 +10,6 @@ Kesan pesan saya selama mengikuti rangkaian INTRIVIA yaitu saya mendapat banyak 
 
 ## Kesan Pesan Cluster 19 Sejauh Ini 
 Terimakasih banyak buat teman-teman kelompok INTRIVIA yang udah sama-sama berproses dan saling bantu selama kegiatan! Semoga kita tetap kompak, makin akrab, dan sukses terus ke depannya. Semangat buat perjalanan kita di FILKOM. 
+
+## Harapan Kuliah 
+Harapanku, semoga FILKOM dapat menjadi tempat bagiku untuk terus bertumbuh, belajar, dan berkembang. Semoga setiap pengalaman dan proses yang aku jalani disini dapat membawaku lebih dekat dengan cita - cita, hingga kelak aku mampu meraih kesuksesan dan membanggakan kedua orang tuaku. 
